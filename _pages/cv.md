@@ -16,11 +16,11 @@ Education
 
 Work Experience
 ======
-* Feb 2021 - Present: Amazon.com Inc., Research Scientist
+* Research Scientist, Amazon.com Inc. (Feb 2021 - Present)
 
-* Summer 2020: Amazon.com Inc., Research Scientist Intern
+* Research Scientist Intern, Amazon.com Inc. (Summer 2020) 
 
-* Summer 2019: Exxon Mobil Corp., Intern
+* Intern, Exxon Mobil Corp. (Summer 2019)
 
   
 
